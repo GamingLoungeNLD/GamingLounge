@@ -1,0 +1,2 @@
+# GamingLounge
+DISCORD SERVER
